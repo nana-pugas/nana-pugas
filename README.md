@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @nana-pugas😄
+- 👋 Hi, I’m @nana-pugas
